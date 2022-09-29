@@ -1,0 +1,2 @@
+# Thoriq
+website gabut
